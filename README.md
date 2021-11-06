@@ -1,0 +1,1 @@
+# weakpoint_of_city
